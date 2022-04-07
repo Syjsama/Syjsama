@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Syjsama a dunce
+- 📫 How to reach me ...e-mail:1840566360qq.com
+- i'm student now
